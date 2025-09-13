@@ -21,7 +21,7 @@ Or as I like to say: **"Government by the People, Governed by the People."**
 [Against Elections (US Edition) by David Van Reybrouck](https://www.davidvanreybrouck.be/en/boeken/twee-monologen) - Presents a lot of historical precedence of sortition in action, and puts it into context of current political issues in both Europe and the US.
 
 [Lottocracy by Alexander Guerrero](https://global.oup.com/academic/product/lottocracy-9780198938989)
-A philosophical defense of sortition, delving into the nature of democracy, political legitimacy, political equality, and political participation.
+A philosophical defense of sortition, delving into the nature of democracy, political legitimacy, equality, and participation.
 
 ## Misc Commentary and Sound Bites
 
